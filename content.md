@@ -56,4 +56,6 @@ Bicasso 毕卡索2017年新品及技术发布会, Cocoluxe Introduction, Forest 
 
 ===
 references
+http://www.2gou.com/6347.html
+https://gogolive.com.my/bingo/product/gogo-live-studio/
 
